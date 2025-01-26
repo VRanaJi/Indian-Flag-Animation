@@ -1,2 +1,2 @@
 # Indian-Flag-Animation
-Jai Hind🫡 Jai Bharat🫡
+Jai Hind🫡 Jai Bharat🇮🇳
